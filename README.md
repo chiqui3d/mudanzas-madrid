@@ -1,4 +1,4 @@
-#Consejos previos para organizar una mudanza
+# Consejos previos para organizar una mudanza
 
  
 No es que lo digan los expertos, ni los que trabajan en este ámbito, es que es lógico y fácil de suponer. Las [mudanzas](https://www.amsegoviana.com) implican un exceso de estrés y fatiga que, en ocasiones, produce enfrentamientos entre la pareja que organiza la mudanza o entre los profesionales y la familia que se traslada a Madrid.
